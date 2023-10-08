@@ -1,2 +1,1 @@
-# chotam
-SKIBIDI DOP DOP DOP ES ES ES
+# кривой огрызок сделанный на юнити
